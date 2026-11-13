@@ -1,1 +1,0 @@
-ini cuman coba coba doang
